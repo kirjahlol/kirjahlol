@@ -1,1 +1,1 @@
-hi im stupid and i program sometimes also check out my website [kirjah.lol](https://kirjah.lol) ok bye
+Hi! I'm stupid, and I program sometimes. Also, check out my website, [kirjah.lol](https://kirjah.lol). OK, bye!
